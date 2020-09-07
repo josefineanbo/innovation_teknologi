@@ -1,1 +1,0 @@
-# innovation_teknologi
